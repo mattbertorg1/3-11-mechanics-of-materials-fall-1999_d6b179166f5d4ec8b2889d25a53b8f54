@@ -1,0 +1,1 @@
+# 3-11-mechanics-of-materials-fall-1999_d6b179166f5d4ec8b2889d25a53b8f54
